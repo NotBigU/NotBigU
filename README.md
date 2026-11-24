@@ -20,5 +20,5 @@
 - Semester 1 lab projects and building daily problem-solving habits
 
 ## Connect With Me
-- LinkedIn : [Your LinkedIn Profile URL]
-- Email : [Your college email address]
+- LinkedIn : https://www.linkedin.com/in/ujjwal-thakur-684776432/
+- Email : ujjwalthakur8d@gmail.com , 2601730293@krmu.edu.in
